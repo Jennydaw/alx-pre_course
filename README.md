@@ -1,1 +1,1 @@
-I am a pround Alx student
+I am a proud Alx student
